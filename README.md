@@ -29,4 +29,4 @@
   👉 <a href="https://t.me/+rGcwTiXs4F4zMWQ1" target="_blank">https://t.me/+rGcwTiXs4F4zMWQ1</a>
 </p>
 
-<p class="highlight">🔥 Siz de kazananlar arasındaki yerinizi alın, Grandpashabet avantajlarını kaçırmayın! 🔥</p>
+<p class="highlight">🔥 Siz de kazananlar arasındaki yerinizi alın, Grandpashabet avantajlarını kaçırmayın!. 🔥</p>
